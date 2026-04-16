@@ -1,1 +1,1 @@
-samsung tb remote google admob app-ads.txt link
+samsung tv remote google admob app-ads.txt link
